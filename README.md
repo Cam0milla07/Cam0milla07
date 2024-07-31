@@ -10,7 +10,6 @@ meu nome é Camilla Majole
   
 MEUS CONTADOS 
 
-conceicao.camilla@escola.pr.gov.br
-
+conceicao.camilla@escola.pr.gov.br  
 
 ![](https://tenor.com/pt-BR/view/tokyo-revengers-babu-chifuyu-gif-27708959)
